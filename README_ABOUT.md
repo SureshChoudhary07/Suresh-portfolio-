@@ -1,6 +1,6 @@
 # About Me - Suresh Choudhary
 
-👋 **Student | Digital Creator | Aspiring Finance Professional**
+👋 **Student | | Aspiring Finance Professional**
 
 ---
 
